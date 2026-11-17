@@ -1,5 +1,5 @@
 # 💫 About Me:
-🏢Currently running operating agency<br>🌱learning AI and Cloud Services<br>🧑‍💻Great knowledge in Computer Hardware's<br>☮️Chill 14 y/o
+🏢Currently running operating agency<br>🌱learning AI and Cloud Services<br>🧑‍💻Great knowledge in Computer Hardware's<br>☮️Chill 15 y/o
 
 
 ## 🌐 Socials:
